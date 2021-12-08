@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ragna-andersson
-- 👀 I’m interested inreading books more than programming
+- 👀 I’m interested in reading books more than programming
 - 🌱 I’m currently learning to cope with my job
 - 💞️ I’m  not looking to collaborate.
 - 📫 How to reach me ... reach me?
